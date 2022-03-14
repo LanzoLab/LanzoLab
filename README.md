@@ -1,0 +1,5 @@
+- 👋 hey
+- 👀 I’m interested in everything i find interesting
+- 🌱 I’m currently learning new things
+- 💞️ I’m looking to collaborate with peoples
+- 📫 Lanzo is in love 💘#0268
